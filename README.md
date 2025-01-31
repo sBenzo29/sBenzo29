@@ -2,4 +2,4 @@
 - 👀 My interests include writing (creative writing and copywriting), continuous self-growth, and raising great kids.
 - 🌱 I’m currently learning to be a web developer and hoping to freelance as a side gig once I've learned.
 - 📫 You can reach me by email at stephaniebenso@gmail.com.
-- ⚡ Fun fact: I'm born on Leap Day, which means I've only had 11 birthdays. 
+- ⚡ Fun fact: I'm born on Leap Day, so I've only had 11 birthdays. 
