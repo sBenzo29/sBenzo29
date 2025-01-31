@@ -1,4 +1,4 @@
-- 👋 Hello there, I’m @sBenzo29
+- 👋 Hello, I’m @sBenzo29
 - 👀 My interests include writing (creative writing and copywriting), continuous self-growth, and raising great kids.
 - 🌱 I’m currently learning to be a web developer and hoping to freelance as a side gig once I've learned.
 - 📫 You can reach me by email at stephaniebenso@gmail.com.
